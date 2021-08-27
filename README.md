@@ -4,3 +4,6 @@
 
 ![](https://i.imgur.com/zoLKq96.png[/img)
 
+## Versão mobile
+![](https://i.imgur.com/BI0o2As.png[/img)
+
